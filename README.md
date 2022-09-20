@@ -36,10 +36,10 @@
 
 
 # Contact dev
-* Telegram: ```@ngdangtr```
+* Facebook : fb.com/NguyenCongTung.Profile
 
 # Donation
-* Momo: ```0965849504```
+* Momo: ```0865519476```
 
 
 
